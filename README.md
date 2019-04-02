@@ -8,6 +8,7 @@
 
 ## 地址
 <p>https://www.zhaiclub.com/</p>
+<p>https://www.fuck91.xyz/</p>
 
 ## 参考
 原作者：<a href="https://github.com/yhf7952/91pornMobile">yhf7952/91pornMobile</a>
